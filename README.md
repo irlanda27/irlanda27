@@ -10,4 +10,4 @@
 
 💭 Known for being organized, resourceful, and collaborative, I enjoy learning new technologies and working on interdisciplinary teams. My ability to translate complex ideas into clear, actionable solutions is one of my strongest assets.
 
-🩵 **Bilingual**: Spanish (native) and English (fluent); currently improving my French to grow personally and professionally.
+🗣️ **Bilingual**: Spanish (native) and English (fluent); currently improving my French to grow personally and professionally.
